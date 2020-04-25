@@ -1,0 +1,2 @@
+# K-NG_OF_TH-NK
+I AM A THİNK
